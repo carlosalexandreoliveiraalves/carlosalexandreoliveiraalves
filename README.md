@@ -4,6 +4,7 @@
 📧 **Email:** [carlosalexandreoliveiraalves3@gmail.com](mailto:carlosalexandreoliveiraalves3@gmail.com)  
 📞 **Phone:** +55 (62) 99160-1923  
 🌐 **GitHub:** [carlosalexandreoliveiraalves](https://github.com/carlosalexandreoliveiraalves)  
+🔗 **LinkedIn:** [Carlos Alexandre Oliveira Alves](https://www.linkedin.com/in/carlos-alexandre-bb4330201/)  
 
 ---
 
